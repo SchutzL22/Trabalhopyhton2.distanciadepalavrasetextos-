@@ -1,0 +1,1 @@
+# Trabalhopyhton2.distanciadepalavrasetextos-
